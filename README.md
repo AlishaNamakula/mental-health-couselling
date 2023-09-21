@@ -7,3 +7,5 @@ This website is going to consist of 3 categories that is to say;
 **Motivational qoutes**
 
 **Bible qoutes**
+![mlk-inspirational-quote](https://github.com/AlishaNamakula/mental-health-couselling/assets/145709106/f05ec38e-bac1-4dfe-aa7e-1e8211d6435a)
+
