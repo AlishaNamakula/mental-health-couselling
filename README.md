@@ -12,6 +12,7 @@ https://github.com/AlishaNamakula/mentors
 
 ![Untitled-1](https://github.com/AlishaNamakula/mental-health-couselling/assets/145709106/ca87af40-ca84-4296-851a-fdf9b8c89161)
 
+![inspirational-quotes-try-a-little-harder-to-be-a-little-better-positive-inspiration-motivation-2C847X1](https://github.com/AlishaNamakula/mental-health-couselling/assets/145709106/47a45b3a-64fb-4d60-b7bf-73767192cfc7)
 
 
 
