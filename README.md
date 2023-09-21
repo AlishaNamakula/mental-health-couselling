@@ -10,7 +10,8 @@ you can find more of the motivational qoutes on our next page below;
 
 https://github.com/AlishaNamakula/mentors
 
-![Untitled](https://github.com/AlishaNamakula/mental-health-couselling/assets/145709106/f124ceaa-8025-4772-81e3-500f3122c21e)
+![Untitled-1](https://github.com/AlishaNamakula/mental-health-couselling/assets/145709106/ca87af40-ca84-4296-851a-fdf9b8c89161)
+
 
 
 
